@@ -31,7 +31,7 @@ Notes you took during the interview.
 
 ### Summary
 
-Christian is an interesting and open minded young man at the flowering of his carreer. With an educational and professional background in business and sales in the software and innovation industry, he now aims to deepen his technical skills to be able to perform at the interface of the business and development aspects of an organization. Christian has been traveling and living overseas since a young age, what has provided him the adaptability required to interact with people from different cultures and backgrounds. He has a passion for networking, getting to know people needs and skills, and linking people together when they can help each other. On his free time he enjoys practicing various sports, traveling and reading about business and technology.
+Christian is an interesting and open minded young man at the flowering of his carreer. With an educational and professional background in business and sales in the software innovation and language industries, he now aims to deepen his technical skills to be able to perform at the interface of the business and development aspects of an organization. Christian has been traveling and living overseas since a young age, what has provided him the adaptability required to interact with people from different cultures and backgrounds. He has a passion for networking, getting to know people needs and skills, and linking people together when they can help each other. On his free time he enjoys practicing various sports, traveling and reading about business and technology.
 
 
 
